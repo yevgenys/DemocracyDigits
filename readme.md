@@ -1,1 +1,1 @@
-Democracy for digits! Equality to all! 
+Democracy for digits! Equality to all(almost :) )! 
