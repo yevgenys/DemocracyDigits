@@ -1,0 +1,1 @@
+Democracy for digits! Equality to all! 
